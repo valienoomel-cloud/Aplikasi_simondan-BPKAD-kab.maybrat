@@ -1,0 +1,1 @@
+# Aplikasi_simondan-BPKAD-kab.maybrat
